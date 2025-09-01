@@ -1,2 +1,2 @@
 # toko_daki
-daki semahal batu bara usahakan mandi 3bln sekali 
+daki semahal batu bara mandi 3bln sekali agar cepat kaya
